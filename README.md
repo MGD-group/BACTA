@@ -5,7 +5,7 @@
 
 **Dates:** August 4 to 8, 2025.
 
-**Location:** Rutgers University, New Brunswick. Hill 705.
+**Location:** Rutgers University, New Brunswick. Room Hill 705.
 
 **Organizers:** Alex Elchesen, Facundo Mémoli, Aziz Gülen and Amit Patel.
 
